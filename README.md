@@ -1,2 +1,2 @@
-# NAME:
-# STUDENT ID:
+# NAME:น.ส.ปุณฑริกา ขอกั้นกลาง
+# STUDENT ID:680610696
